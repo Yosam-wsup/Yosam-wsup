@@ -1,4 +1,4 @@
-<img width="736" height="510" alt="#tylerthecreatorart #welovetylerthecreator" src="https://github.com/user-attachments/assets/bc845bb8-8728-4022-8109-63fde327a8dc" />
+<img width="236" height="79" alt="1c2e3909b50e9544f2d01e064244f145" src="https://github.com/user-attachments/assets/75afd42e-01e6-4bf1-96f4-5c9df6fae870" />
 
 ##  " Camp Flog Gnaw "
 
